@@ -1,4 +1,4 @@
-#  
+#  pull lucky blocks Scripts custom is the best pull lucky blocks Script, featuring silent aim and undetectable. Safe and powerful for all your needs.
 
 
 
